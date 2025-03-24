@@ -1,7 +1,7 @@
 
 link to folder:
 
-/c/Users/glads/Downloads/bwp-non-discoosure-agreement
+/c/Users/glads/Downloads/bwp-non-disclosure-agreement
 
 link to AI:
 
